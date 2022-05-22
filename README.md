@@ -1,0 +1,2 @@
+# Edutraction
+my startup idea
